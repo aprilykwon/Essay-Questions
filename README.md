@@ -1,6 +1,6 @@
 # April Kwon
 >
->23826 24th Dr. SE, Bothell, WA 98021 
+>23826 24th Dr. SE, Bothell, WA 98021  
 >yura.kwo@gmail.com  
 >(206) 605-4974   
 >
